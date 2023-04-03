@@ -20,13 +20,14 @@ Dedicated Customer Service professional with knowledge of service delivery and p
 
 __Sprague High School__, Salem, OR `May 2021-September 2021`
 
-- Granduated with 4.0 GPA
+- Granduated with 4.0 GPA (typically you wouldn't include your highschool but the 4.0 is a good thing other than the fact that you were homeschooled)
 
 
 __Web Design and Programing Certificate -  | BYU Pathway Worldwide | Rexburg, ID__ `June 2019-July 2021`
 
 - Led six class discussions that inspired class and increased understanding_
-
+- leadership skills?
+- communication skills?
 
 __Brigham Young University - Idaho__, Rexburg, ID `Expected 2021`
 
@@ -41,20 +42,22 @@ __Landscaper | Teton Landscaping__, Idaho Falls, ID
 -	Planted bulbs, trees, bushes, and flowers for residential and commercial clients.
 -	Installed and repaired underground sprinkler systems, yard maintenance, built retaining walls and fountains.
 -	Listened to and worked with customers to provide the desired landscape needs.
+- were you deligated any tasks, hard responsabilities?
 
 `January 2019 - December 2020`
 __Missionary (Volunteer Position) | The Church Of Jesus Christ Of Latter-day Saints__, Richmond , VA	
 
 -	De-escalated and resolved conflicts between local peoples and missionary representatives.
+- try to be very specific
 -	Organized and led weekly training meetings resulting in 60% increase in productivity.
 
 `May 2016 - December 2018`
 __Professional Window Cleaner | AAA Professional Window Cleaning__, Salem, OR
 
-- Produced satisfactory work for customers even when there are obstacles in the way.
+- Produced satisfactory work for customers regardless of obstacles.
 - Observed and adhered to industry and worksite safety regulations to avoid accidents or injuries.
 - Reported deficiencies in systems or equipment to reduce service delivery failure or risk to health, safety or environment.
-- Demonstrated stellar listening and communication skills with customers to meet wants and needs to their satisfaction.
+- Demonstrated professional listening and communication skills with customers to meet wants and needs to their satisfaction.
 
 
 
